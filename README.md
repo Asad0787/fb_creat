@@ -1,2 +1,9 @@
-bete code phone me rakhne ki + uthane ki kosis bhi mat krna orna phone se randiyo ka rone ka awaz aayega to aake mat rona mere pas 🗿👍
-sath me phone bhi chud skta hai
+#KOJA KA LARKA CHANDU HERE
+
+```
+Jasa Ka Sab Ko Pta Koja Mara Official Papa 
+Sorry Koja Papaa Ma na Apko Gali Di
+Ab Meri Ma Ko Zadyiaa Na 
+Chodna Sorry Koja Papa
+
+```
